@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **pankajgarkoti935@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/PankajGarkoti128](https://github.com/PankajGarkoti128)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
